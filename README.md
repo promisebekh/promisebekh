@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning lots of stuff but I will still snick around here from time to time
 - 💞️ I’m looking to collaborate on nothing at all :p
 - 📫 How to reach me I use discord: sona(👽,👽)#2206
+- My twitter is @Blacksoso14 follow me ;)
 
 <!---
 promisebekh/promisebekh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
